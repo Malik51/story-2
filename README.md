@@ -1,1 +1,1 @@
-# story-2
+this is my first story ever i am writing
